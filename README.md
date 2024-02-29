@@ -1,4 +1,4 @@
-# We Believe YOuTube Summarizer will reduce 50% user duration on YouTube. That's why we think it is future YOUTUBE KILLER. What do you think? Leave comments on Show HN. THE BEST FREE YOUTUBE VIDEO SUMMARIZER WITH AI
+# We Believe YouTube Summarizer will reduce 50% user duration on YouTube. That's why we think it is the future YOUTUBE KILLER. What do you think? Leave comments on Show HN. THE BEST FREE YOUTUBE VIDEO SUMMARIZER WITH AI
 
 
 
